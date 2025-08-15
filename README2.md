@@ -13,7 +13,7 @@ When the __Harley Quinn: Birds Of Prey__ came out in 2020, I was intrigued by th
 Toast the buttered side until golden brown and crispy
 > We are toasting only the inner side to keep the chewey texture of the _Ciabatta_ bread on the outside, but make sure the inside doesn't get soggy. 
 >> Also, it is a great texture to add to the bite.
-2. The __eggs__ in the movie are fried on a _Flat Top Grill_, so for those who do not have acces to one, I would advise using a Cast Iron, or Stainless Steel pan on a relatively high heat. The Eggs need to be cooked so they don't have A crispy bottom necessary, but the egg whites are springy. <br> When the eggs are almost donw, cover them with slices of the _American Cheese_ and preferably cover them so the Cheese would melt better. 
-> Important note!: Make sure the Yolk is still runny, it is probably the most important parts of the _Sandwich_
-3. __Bacon__ - Cook your Bacon on a skillet, a trick I use is starting with a cold skillet, that ensures the bacon is cooked slowly and evenly so it becomes as Crispy as i want it.
+2. The __eggs__ in the movie are fried on a _Flat Top Grill_, so for those who do not have acces to one, I would advise using a Cast Iron, or Stainless Steel pan on a relatively high heat. The Eggs need to be cooked so they don't have A crispy bottom , but the whites are springy. <br> When the eggs are almost done, cover them with slices of the _American Cheese_ and preferably cover them so the Cheese would melt better. 
+> Important note!: Make sure the Yolk is still runny, it is probably the most important part of the _Sandwich_
+3. __Bacon__ - Cook your Bacon on a skillet, A trick I use is starting with a cold skillet, that ensures the bacon is cooked slowly and evenly so it becomes as Crispy as i want it.
 4. __Assembly__, order is important here, The bottom layer has to be bacon, after that put the eggs, and now the most important part. ___just a dash___of hot sauce on top, so we can taste the Cheese.
